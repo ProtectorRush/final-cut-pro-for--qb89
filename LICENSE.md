@@ -1,4 +1,4 @@
-
+Enhance Final Cut Pro for macOS with new Final Cut Pro for macOS Overlay | noise-reduction + glitch-effect, the #1 overlay. Includes noise-reduction and glitch-effect for a
 
 
 
